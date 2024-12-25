@@ -1,3 +1,3 @@
-## Where to feed the ducks in Gothenburg
+## The answers are on the map
 
-We have an answer.
+You may go to our website, and gain the knowledge.
